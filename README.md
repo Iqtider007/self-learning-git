@@ -1,3 +1,3 @@
 
 Batman is all about vengence
-Batman is the hardest superhero you can think of. gi
+Batman is the hardest superhero you can think of.
